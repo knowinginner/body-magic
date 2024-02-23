@@ -1,18 +1,78 @@
-# Quartz v4
+WE DO NOT NEED MAGIC TO TRANSFORM OUR WORLD. WE CARRY ALL OF
 
-> “[One] who works with the door open gets all kinds of interruptions, but [they] also occasionally gets clues as to what the world is and what might be important.” — Richard Hamming
+THE POWER WE NEED INSIDE OURSELVES ALREADY.
 
-Quartz is a set of tools that helps you publish your [digital garden](https://jzhao.xyz/posts/networked-thought) and notes as a website for free.
-Quartz v4 features a from-the-ground rewrite focusing on end-user extensibility and ease-of-use.
+J.K. ROWLING
 
-🔗 Read the documentation and get started: https://quartz.jzhao.xyz/
+IF I HAVE SEEN FURTHER, IT IS BY STANDING ON THE SHOULDERS OF GI-
 
-[Join the Discord Community](https://discord.gg/cRFFHYye7t)
+ANTS.
 
-## Sponsors
+1676 LETTER OF ISAAC NEWTON
 
-<p align="center">
-  <a href="https://github.com/sponsors/jackyzha0">
-    <img src="https://cdn.jsdelivr.net/gh/jackyzha0/jackyzha0/sponsorkit/sponsors.svg" />
-  </a>
-</p>
+WE TAKE THE VERY BEST OF WHAT PEOPLE DO, SYNTHESISE IT DOWN,
+
+MAKE IT LEARNABLE AND SHARE IT WITH EACH OTHER. AND THAT IS WHAT
+
+THE REAL FUTURE OF WHAT NLP WILL BE AND IT'S GONNA STAY THAT WAY!
+
+THE EVOLUTION ISN'T OVER. WE ARE THE EXPERIENCE THAT THE UNI-
+
+VERSE IS HAVING.
+
+ALL WE ARE EVER DOING IS PUTTING THINGS TOGETHER OR TAKING
+
+THINGS APART.
+
+RICHARD BANDLER
+
+VLADIMIR KLIMSA
+
+BODY MAGIC.
+
+DON’T OPEN IT
+
+WWW.VLADIMIRKLIMSA.COM
+
+Copyright [BY-NC 4.0 2024](https://creativecommons.org/licenses/by-nc/4.0/) Vladimir Klimsa
+
+published by www.vladimirklimsa.com
+
+## Contents
+
+Playing, Fun and Tricks With Body 
+
+1. Preface 
+2. Body 
+3. Skin 
+4. Head 
+5. Face 
+6. Hair
+7. Forehead
+8. Eyebrows
+9. Eyes
+10. Ears
+11. Nose
+12. Cheeks
+13. Lips
+14. Mouth
+15. Jaw
+16. Neck
+17. Shoulder
+18. Armpit
+19. Upper arm
+20. Heart
+21. Chest
+22. Stomach
+23. Navel
+24. Ass
+25. Genitals
+26. Spine
+27. Legs
+28. Knees
+29. Toes
+
+
+Dedicated to those who appreciate
+
+Playing, Fun and Tricks With Body
