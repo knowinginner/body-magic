@@ -1,0 +1,78 @@
+WE DO NOT NEED MAGIC TO TRANSFORM OUR WORLD. WE CARRY ALL OF
+
+THE POWER WE NEED INSIDE OURSELVES ALREADY.
+
+J.K. ROWLING
+
+IF I HAVE SEEN FURTHER, IT IS BY STANDING ON THE SHOULDERS OF GI-
+
+ANTS.
+
+1676 LETTER OF ISAAC NEWTON
+
+WE TAKE THE VERY BEST OF WHAT PEOPLE DO, SYNTHESISE IT DOWN,
+
+MAKE IT LEARNABLE AND SHARE IT WITH EACH OTHER. AND THAT IS WHAT
+
+THE REAL FUTURE OF WHAT NLP WILL BE AND IT'S GONNA STAY THAT WAY!
+
+THE EVOLUTION ISN'T OVER. WE ARE THE EXPERIENCE THAT THE UNI-
+
+VERSE IS HAVING.
+
+ALL WE ARE EVER DOING IS PUTTING THINGS TOGETHER OR TAKING
+
+THINGS APART.
+
+RICHARD BANDLER
+
+VLADIMIR KLIMSA
+
+BODY MAGIC.
+
+DON’T OPEN IT
+
+WWW.VLADIMIRKLIMSA.COM
+
+Copyright [BY-NC 4.0 2024](https://creativecommons.org/licenses/by-nc/4.0/) Vladimir Klimsa
+
+published by www.vladimirklimsa.com
+
+## Contents
+
+Playing, Fun and Tricks With Body 
+
+1. Preface 
+2. Body 
+3. Skin 
+4. Head 
+5. Face 
+6. Hair
+7. Forehead
+8. Eyebrows
+9. Eyes
+10. Ears
+11. Nose
+12. Cheeks
+13. Lips
+14. Mouth
+15. Jaw
+16. Neck
+17. Shoulder
+18. Armpit
+19. Upper arm
+20. Heart
+21. Chest
+22. Stomach
+23. Navel
+24. Ass
+25. Genitals
+26. Spine
+27. Legs
+28. Knees
+29. Toes
+
+
+Dedicated to those who appreciate
+
+Playing, Fun and Tricks With Body
